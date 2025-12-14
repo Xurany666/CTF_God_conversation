@@ -1,2 +1,2 @@
 # CTF_God_conversation
-逆天
+来自于ctf大手子的非常具有含金量的神人发言
