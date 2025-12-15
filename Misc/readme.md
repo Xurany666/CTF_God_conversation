@@ -90,6 +90,8 @@ Misc是什么都有的意思辣，因为切片数目不多而暂时存放在这�
 
 ![](meme/Z/A9FBCDBADBB1A6A6AC9566F3F4C2E4F0.png)
 
+![](meme/Z/E250BE92E0D3C4A97E5C9F0C3F115D19.jpg)
+
 ## Albert Kesselring
 
 > 缺少关于这位师傅的有关情报，欢迎commit！
