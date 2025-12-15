@@ -8,6 +8,8 @@
 
 ## 著名发言
 
+![](meme/959a2bf1fcd8545fd50b4e3d32ff45d0.png)
+
 ![](meme/DC0E235F2C2AE04F200718BE226CADC2.jpg)
 
 ![](447ae46785debafaec54e726a9e32182.png)
