@@ -6,6 +6,8 @@
 
 ## 著名发言
 
+![](memes/1ca5c1f94b56ef0939d8f3b140f30e6a.png)
+
 ![](memes/F1FE1914188736149883D18E0A1392A5.jpg)
 
 ![](memes/429B5A5AFB80D136ED81628F5497E1F6.png)
