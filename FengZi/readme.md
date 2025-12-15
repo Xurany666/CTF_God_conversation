@@ -60,6 +60,8 @@
 
 ## 著名进攻（雾）
 
+![](meme/DA0610844A35D31C006F56CD47DD3CF9.png)
+
 <details style="border: 1px black solid; padding:5px; border-radius: 5px; margin-top: 5px; margin-bottom: 5px">
 <summary>* 包含直白的问候</summary>
 <img src="meme/522458434D13AD6A7CD2BDA0847DAB68.jpg" />
