@@ -12,6 +12,10 @@ Misc是什么都有的意思辣，因为切片数目不多而暂时存放在这�
 
 > 缺少关于这位师傅的有关情报，欢迎commit！
 
+![](meme/•/6428DE307FB80DEB1D0EE26B1B426EB2.jpg)
+
+![](meme/•/195AB74B34C8D21B4315E7B5EE127215.jpg)
+
 ![](meme/•/E50F9DAD6C6BEF1E33EE5A08D4A9F7C7.jpg)
 
 ![](meme/•/88C0C5F600309C063137E8990C9BB2D0.png)
@@ -25,6 +29,18 @@ Misc是什么都有的意思辣，因为切片数目不多而暂时存放在这�
 ## 乐乐
 
 辣鸡一枚，贡献了大部分切片，爱好是在群里膜佬
+
+![](meme/乐乐/89F190715A13E598C97261BEEDDE24C7.jpg)
+
+![](meme/乐乐/1AB2404B0670CEE66B3848FF046FB089.jpg)
+
+![](meme/乐乐/506C384FF4B69FD11653CF8F628EE5C5.jpg)
+
+![](meme/乐乐/31146AABCDC76D24DF96B6F1A698279E.jpg)
+
+![](meme/乐乐/5BFBEBC1203175666E51F789A0F2740C.jpg)
+
+![](meme/乐乐/746EA53DBA7494FB05AF6570D14D5937.jpg)
 
 ![](meme/乐乐/6E2A3D1236CB2609A3F8FDA46ECFD1D7.png)
 
@@ -41,6 +57,10 @@ Misc是什么都有的意思辣，因为切片数目不多而暂时存放在这�
 有时候叫九月大笨蛋，主要活动区域是原0xGame赛事群 ~~现xnn交流群~~
 
 Rabbit0w0批注：虽然说是xnn交流群但是请不要误把我当成xnn了
+
+![](meme/Rabbit0w0/0178964C356C8F7A371E07F27DFEE116.jpg)
+
+![](meme/Rabbit0w0/9E5CB969BB4178840CAA9169451BCAB4.jpg)
 
 ![](meme/Rabbit0w0/6004A0B5BB9562B31C01306F60FE423D.png)
 
@@ -141,3 +161,37 @@ Rabbit0w0批注：虽然说是xnn交流群但是请不要误把我当成xnn了
 > 缺少关于这位师傅的有关情报，欢迎commit！
 
 ![](meme/折纸大鸟/0ADCAE41BB8A183E3BCE81708D3AFD59.png)
+
+## 一言
+
+API: <https://v1.hitokoto.cn/?encode=text>
+
+图中的猫猫是群主的bot喵
+
+![](meme/一言/628D9EC2A8EF1CE6FAC42162A52D5E3C.jpg)
+
+![](meme/一言/66FFC84207C8E7C0A81F509AAFBC43BB.jpg)
+
+![](meme/一言/FB638B74D7EF9CD5282627444AE4B2D2.jpg)
+
+![](meme/一言/BDA6E3FBDE2045DEBD28A2FE029EEC7D.jpg)
+
+![](meme/一言/CD6D7E30ACC300F83B4BA144976587D7.jpg)
+
+![](meme/一言/5E94BC77E0A615898265665B7DD0BD9E.jpg)
+
+![](meme/一言/CC2B1DB85C807AF32DA1E1550DAB9CC4.jpg)
+
+![](meme/一言/025434AE89262716944F4BC7B5E63CD0.jpg)
+
+## Drawrain
+
+> 缺少关于这位师傅的有关情报，欢迎commit！
+
+![](meme/Drawrain/29090BC8270E7288D318A0DB5CAC050B.jpg)
+
+## みお
+
+> 缺少关于这位师傅的有关情报，欢迎commit！
+
+![](meme/みお/ED62F3BF7208F41B863C35B866BD8A17.jpg)
