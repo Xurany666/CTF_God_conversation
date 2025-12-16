@@ -195,12 +195,6 @@ API: <https://v1.hitokoto.cn/?encode=text>
 
 ![](meme/一言/025434AE89262716944F4BC7B5E63CD0.jpg)
 
-## Drawrain
-
-> 缺少关于这位师傅的有关情报，欢迎commit！
-
-![](meme/Drawrain/29090BC8270E7288D318A0DB5CAC050B.jpg)
-
 ## みお
 
 > 缺少关于这位师傅的有关情报，欢迎commit！
