@@ -86,6 +86,9 @@ Rabbit0w0批注：虽然说是xnn交流群但是请不要误把我当成xnn了
 
 > 缺少关于这位师傅的有关情报，欢迎commit！
 
+![](meme/玫幽倩/862C8A531044AFC7E13B6526633F9B3B.png)
+注：“随便”是群里的AI bot
+
 ![](meme/玫幽倩/34155A733DB0F2F84CE6684A42C4A167.png)
 
 ![](meme/玫幽倩/08CF547FC85B7EE0B5D2FD39F89326A9.jpg)
