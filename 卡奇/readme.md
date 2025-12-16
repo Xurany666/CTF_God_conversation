@@ -16,6 +16,12 @@
 
 ## 著名发言
 
+![](memes/526962334-b96beecc-e05f-40c5-9a71-6d25f25842c3.png)
+
+![](memes/526962919-fad3381f-44e5-48de-afa3-972160e1db51.png)
+
+![](memes/526968254-5ed2a62c-04bb-41a7-9000-4a3bd80cfcbc.png)
+
 ![](memes/7807753758D185401C8C091B91F881F5.jpg)
 
 ![](memes/98040a41d376f57a7baebd62990d7e23.png)
@@ -161,8 +167,3 @@
 ![](memes/76425242C85E956F935A44486B331364.jpg)
 
 ![](memes/443CDED05CFF8A0722C6379160387480.png)
-
-再补亿点！
-<img width="458" height="190" alt="1ab1e1ff658947ce083653be56338818" src="https://github.com/user-attachments/assets/b96beecc-e05f-40c5-9a71-6d25f25842c3" />
-<img width="1310" height="472" alt="ScreenShot_2025-12-16_164334_942" src="https://github.com/user-attachments/assets/fad3381f-44e5-48de-afa3-972160e1db51" />
-<img width="400" height="198" alt="ScreenShot_2025-12-16_165541_963" src="https://github.com/user-attachments/assets/5ed2a62c-04bb-41a7-9000-4a3bd80cfcbc" />
