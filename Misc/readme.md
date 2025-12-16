@@ -167,14 +167,6 @@ Rabbit0w0批注：虽然说是xnn交流群但是请不要误把我当成xnn了
 
 ![](meme/Byt3/5B9BEDA871FF142A4CACAC9AB7CBA0E3.png)
 
-## willy周
-
-> 缺少关于这位师傅的有关情报，欢迎commit！
-
-> 师傅我对不起你QwQ
-
-![](meme/willy周/677304E860BE8DE98088D4BCAE1F7370.jpg)
-
 ## 折纸大鸟
 
 > 缺少关于这位师傅的有关情报，欢迎commit！
