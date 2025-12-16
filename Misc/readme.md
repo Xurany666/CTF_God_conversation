@@ -12,6 +12,10 @@ Misc是什么都有的意思辣，因为切片数目不多而暂时存放在这�
 
 > 缺少关于这位师傅的有关情报，欢迎commit！
 
+![](meme/•/228D1022AE7AAFCE7F9B21DB52FF41E4.jpg)
+
+![](meme/•/5D6ECCCE01641C6EBFDF60CED506680D.jpg)
+
 ![](meme/•/6428DE307FB80DEB1D0EE26B1B426EB2.jpg)
 
 ![](meme/•/195AB74B34C8D21B4315E7B5EE127215.jpg)
@@ -96,6 +100,18 @@ Rabbit0w0批注：虽然说是xnn交流群但是请不要误把我当成xnn了
 ## v1c0
 
 > 缺少关于这位师傅的有关情报，欢迎commit！
+
+![](meme/v1c0ABEE827776BDE8097E2E7520B9BDC347.png)
+
+![](meme/v1c0/2D74307A798607FD7BA9A44F2CF83F24.png)
+
+![](meme/v1c0/98B973C1116FDA3B7BCC4E9F3D3E84D7.png)
+
+![](meme/v1c0/CE383AB208666A2D8666426D4840BBBB.jpg)
+
+![](meme/v1c0/DDD68B7F0022F315051805DBE06EABA8.jpg)
+
+![](meme/v1c0/44043A40335C5EC369C72E8E7065440B.jpg)
 
 ![](meme/v1c0/3ED9B8CF28D6CC1D806E7D8AF5180708.png)
 
@@ -198,3 +214,17 @@ API: <https://v1.hitokoto.cn/?encode=text>
 > 缺少关于这位师傅的有关情报，欢迎commit！
 
 ![](meme/みお/ED62F3BF7208F41B863C35B866BD8A17.jpg)
+
+## y
+
+> 无法确定这位师傅的称呼，欢迎commit！
+
+> 缺少关于这位师傅的有关情报，欢迎commit！
+
+![](meme/y/3BBA3411A90EC87AA68EDD41ADFA5298.jpg)
+
+## Hol✧low
+
+> 缺少关于这位师傅的有关情报，欢迎commit！
+
+![](meme/Hol✧low/D71F8F8B71E9518F7BF7DAEAAAEFA425.jpg)
